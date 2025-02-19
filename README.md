@@ -1,5 +1,5 @@
 ### Hi there 👋
 
-👀 - [VK](https://vk.com/sev00)
+👀 - [Telegram](https://t.me/sevrn73)
 
 📫 - sevrn@inbox.ru
